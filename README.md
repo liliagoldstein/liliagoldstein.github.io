@@ -1,1 +1,3 @@
 # Lilia Goldstein
+## About me
+I’m Lilia, an aspiring arts and entertainment journalist based in London. This year, I graduated with a Bachelor of Arts in Music from the University of Oxford. During my time at uni I got involved in student journalism, writing about music and culture for newspapers like _Cherwell_ and The Oxford Blue, and doing marketing for zines and magazines like Cuntry Living and _The Isis_ Magazine, the latter of which I was one of the deputy editors-in-chief for. I am at my best when writing about pop music in relation to politics and wider culture. On this website you will find my published work so far, as well as a link to my substack, and some samples of the academic writing that I am most proud of. All of these received first-class marks. 
